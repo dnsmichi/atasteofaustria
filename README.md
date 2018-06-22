@@ -18,6 +18,8 @@ If I just can stop ... "Wenn ich nur aufhörn könnt - WINAK". Taste them, you c
 
 You can get them from the [official Manner store](https://www.austriansupermarket.com/catalogsearch/result/?q=dragee+keksi).
 
+<img src="https://www.winak.at/sites/winak/files/styles/adaptive_social_post_image/adaptive-image/public/editorial/Salted_Caramel_668x444.jpg" heigth=150></img>
+
 ## Cakes <a id="cakes"></a>
 
 ### Linzer Torte
