@@ -8,6 +8,7 @@ Follow me on [Twitter](https://twitter.com/dnsmichi) and [Instagram](https://www
 2. [Cakes](#cakes)
 3. [Coffee](#coffee)
 4. [Gin](#gin)
+5. [Beer](#beer)
 
 ## Cookies <a id="cookies"></a>
 
@@ -55,3 +56,40 @@ A fresh taste, more details [here](https://www.fuxbau-gin.at/).
 ### Fuxbau
 
 My newest love. More details [here](https://www.fuxbau-gin.at/).
+
+
+## Beer <a id="beer"></a>
+
+### Wieselburger
+
+Tastes good and originally is known for the "blopp" on open. A friend of mine brought me into the normal bottles, back in Vienna. Originally from Lower Austria.
+
+- [wieselburger.at](https://www.wieselburger.at/)
+
+### Murauer
+
+We've been there for summer holidays, and also have visited the brewery. The beer is really tasty and best to be enjoyed with a view on the alps.
+
+- [murauerbier.at](https://www.murauerbier.at/)
+
+### Stiegl: Paracelsus Zwickl
+
+Not a blonde, but naturally cloudy. Light and sweet with its taste, and it feels like home.
+
+- [stiegl.at](https://www.stiegl.at/en/beers/classic-beers/stiegl-paracelsus-zwickl)
+
+### Stiegl Radler: Grapefruit
+
+The taste of grapefruit combined with a fresh beer. Summer is coming!
+
+- [stiegl-shop.at](https://www.stiegl-shop.at/braushop/at/shop/5000/700000/Stiegl-Radler-Grapefruit/?card=4122)
+
+### Gösser Lemon Radler
+
+It is 60% lemon and 40% beer which makes this the perfect fit for a hot summer. Get a tray of 24 cans and sit somewhere near the (Danube, Pegnitz) river and enjoy life.
+
+- [REWE Online](https://shop.rewe.de/PD2828882)
+
+
+
+
