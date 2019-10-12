@@ -9,6 +9,7 @@ Follow me on [Twitter](https://twitter.com/dnsmichi) and [Instagram](https://www
 3. [Coffee](#coffee)
 4. [Gin](#gin)
 5. [Beer](#beer)
+6. [Healthy](#healthy)
 
 ## Cookies <a id="cookies"></a>
 
@@ -99,5 +100,9 @@ It is 60% lemon and 40% beer which makes this the perfect fit for a hot summer. 
 - [REWE Online](https://shop.rewe.de/PD2828882)
 
 
+## Healthy <a id="healthy"></a>
 
+### Kürbiskern Öl (Pumpkin Seed Oil)
+
+Only the one from Styria: https://www.steirische-spezialitaeten.at/kulinarik/steirisches-kuerbiskernoel-gga.html
 
