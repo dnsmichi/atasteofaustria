@@ -24,6 +24,10 @@ You can get them from the [official Manner store](https://www.austriansupermarke
 
 The one and only from my hometown, [Jindrak](https://www.jindrak.at/original-linzer-torte/) owns the original recipe.
 
+### Grammastettner Krapferl
+
+Lightweight coffee cookies with a sweet taste, get them in Linz (Spar): https://www.hummels-krapferl.at/
+
 ### Becherkuchen
 
 The one and only chocolate cake with either nuts or poppyseed. Easy to bake, much to impress.
