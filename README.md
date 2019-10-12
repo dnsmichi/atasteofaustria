@@ -19,6 +19,12 @@ If I just can stop ... "Wenn ich nur aufhörn könnt - WINAK". Taste them, you c
 
 You can get them from the [official Manner store](https://www.austriansupermarket.com/catalogsearch/result/?q=dragee+keksi).
 
+### Manner Wafers
+
+Classic or in variations, it tastes so good. [Manner Store](https://www.manner.com/en/products/wafers/original-neapolitan-wafers).
+
+When you are in Austria, look for the [Manner Shops](https://josef.manner.com/de/shops). They have not so good manufactured quality for lower prices.
+
 ## Cakes <a id="cakes"></a>
 
 ### Linzer Torte
