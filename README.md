@@ -9,7 +9,8 @@ Follow me on [Twitter](https://twitter.com/dnsmichi) and [Instagram](https://www
 3. [Coffee](#coffee)
 4. [Gin](#gin)
 5. [Beer](#beer)
-6. [Healthy](#healthy)
+6. [Sweets](#sweets)
+7. [Healthy](#healthy)
 
 ## Cookies <a id="cookies"></a>
 
@@ -72,6 +73,15 @@ A fresh taste, more details [here](https://www.fuxbau-gin.at/).
 
 My newest love. More details [here](https://www.fuxbau-gin.at/).
 
+### Gin Alpin
+
+A fresh and fruity taste. Made by a small distillery in Hallein/Salzburg.
+Have a look [here](https://www.guglhof.at/2014/das-sortiment/gin-alpin)
+
+### Walser Brennkammer Gin
+
+My (@rockaut) absolute favourite! A fresh and fruity taste but it doesn't miss a punch. Made by a micro-destillery in Salzburg Wals.
+Have a look [here](http://www.walserbrennkammer.at)
 
 ## Beer <a id="beer"></a>
 
@@ -105,6 +115,14 @@ It is 60% lemon and 40% beer which makes this the perfect fit for a hot summer. 
 
 - [REWE Online](https://shop.rewe.de/PD2828882)
 
+## Sweets <a id="sweets"></a>
+
+### Mozartkugeln ( Mozart ball(s) ;-) )
+
+While there is a discussion about the "original" ones (https://en.wikipedia.org/wiki/Mozartkugel) - basically they are both good and made of pistachio marzipan and nougat that is covered with dark chocolate ... and both are fantastic.
+
+- Original Salzburger Mozartkugel by Fürst (http://www.original-mozartkugel.com)
+- Echte Salzburger Mozartkugel by Mirabell (https://www.mozartkugel.at)
 
 ## Healthy <a id="healthy"></a>
 
