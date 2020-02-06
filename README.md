@@ -119,7 +119,7 @@ It is 60% lemon and 40% beer which makes this the perfect fit for a hot summer. 
 
 ### Mozartkugeln ( Mozart ball(s) ;-) )
 
-While there is a discussion about the "original" ones (https://en.wikipedia.org/wiki/Mozartkugel) - basically they are both good and made of pistachio marzipan and nougat that is covered with dark chocolate ... and both are fantastic.
+While there is a discussion about the "original" ones (https://en.wikipedia.org/wiki/Mozartkugel) - basically they are both made of pistachio marzipan and nougat that is covered with dark chocolate ... and are both fantastic.
 
 - Original Salzburger Mozartkugel by Fürst (http://www.original-mozartkugel.com)
 - Echte Salzburger Mozartkugel by Mirabell (https://www.mozartkugel.at)
