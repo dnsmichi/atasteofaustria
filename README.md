@@ -1,5 +1,7 @@
 # A Taste Of Austria
 
+> Note: With my new adventure at GitLab, we'll continue at https://gitlab.com/dnsmichi/atasteofaustria
+
 Everything which makes Austria so special in lovely Nuremberg and beyond :)
 
 Follow me on [Twitter](https://twitter.com/dnsmichi) and [Instagram](https://www.instagram.com/netmichi/).
